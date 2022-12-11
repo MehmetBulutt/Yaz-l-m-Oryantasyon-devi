@@ -1,1 +1,1 @@
-Yazilim Oryantasyon Odevi
+Yazilim Oryantasyon Odevı
