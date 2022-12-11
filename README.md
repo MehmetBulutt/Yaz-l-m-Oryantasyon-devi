@@ -1,1 +1,1 @@
-# Yaz-l-m-Oryantasyon-devi
+Yazilim Oryantasyon Odevi
